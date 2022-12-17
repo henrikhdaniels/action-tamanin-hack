@@ -3,7 +3,7 @@ Action Tamnin Hack
 
 # Action Taimanin Hack Cheats Generator Unlimited Gold, Gems and more
 
-[Click Here For Action Taimanin Diamonds/Gold Generator](https://gamergeek.xyz/asafb/)
+[Click Here For Action Taimanin Diamonds/Gold Generator](https://gamergeek.xyz/atfb/)
 
 ----
 
